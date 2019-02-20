@@ -1,4 +1,4 @@
-## Ranjith Akalur
+## Ranjith R
 ## This page is under construction ..
 Student @ Government Engineering College, Sreekrishnapuram, Palakkad
 
