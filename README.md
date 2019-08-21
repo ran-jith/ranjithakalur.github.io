@@ -1,7 +1,5 @@
 ## Ranjith R
 ## This page is under construction ..
-Student @ Government Engineering College, Sreekrishnapuram, Palakkad
+Junior Software Engineer at Turbolab Technologies
 
-B. Tech Information Technology (4th Year)
-
-Avid cricket fan and a proud of the Australian National Cricket Team.
+Studied B.tech IT at Government Engineering College Sreekrishnapuram, Palakkad
